@@ -1,0 +1,2 @@
+**ABOUT THE RECIPE!**
+Vanilla is frequently used to flavor ice cream especially in North America,Asia,and Europe. Vanilla ice cream ,like other flavors of ice cream, was originally created by cooling a mixture made originally created by cooling a mixture made of cream,sugar,and vanilla above a container of ice and salt. we will learn how to make the mixture and we will freeze it in our regular refrigerator. Not only vanilla but many more types of ice cream can be made. You only need to choose your favourite flavour. so lets began! 
